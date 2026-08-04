@@ -1,2 +1,2 @@
-# My-first-repository-
-My first repository for the quarter❤️😊😊😊
+# My-first-project-
+My first project for the quarter❤️😊😊😊
